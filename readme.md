@@ -1,13 +1,11 @@
-# Windows rat & botnet Cracked
+ZoYo and ZoYo Bot Here is some useful information about me
+Use me as best as possible and as comfortable as possible, Use my commands as you want Then don't forget to follow the official rules from discord, namely the Terms of Service and Community Guidelines!
 
-# Detections 1/26 (runtime & scantime)
+Getting started
+You can use hy.help to get information about the bot, the commands list, or information about a specific command.
 
-## Make sure to leave a star in order to receive latest updates of this crack.
+Need help?
+Join my support server or check out the website!
+You can manage your server using the dashboard (Coming Soon).
 
-## ⚠️ᴀᴛᴛᴇɴᴛɪᴏɴ⚠️: Owner of this repository is NOT responsible for any malicious use caused by this Game Cheat. This was made strictly for educational purposes only!
-
-# ʙᴜʏ ᴍᴇ ᴀ ᴄᴏꜰꜰᴇᴇ ☕: 
-
-ᴇᴛʜ: 0x6232EDfF04A1CEFCc133eBa9e957623214eA6760
-
-ʙᴛᴄ: bc1q6l08rtj6j907r2een0jqs6l7qnruwyxfshmf8a
+If you want to know what updates about me, you can join our Discord Support Server. If you really want to know, click the button below
